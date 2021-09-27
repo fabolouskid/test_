@@ -1,6 +1,2 @@
-# Hi
-# Hello
-
-# Mistake corrected
-
-# new branch
+# hello
+# Free me
