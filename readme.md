@@ -1,5 +1,7 @@
 # hello
-
-# hi
-# Lets be civil here. No one is better than the other
-# we are all one
+# Free me
+# I fee like am learning alot in a few hours
+# Dont know what it is but i am beginning to like this shit
+# Still trying to grab a hold of this
+# Not so easyn tho
+# Lets try this again. Hopefully it works
